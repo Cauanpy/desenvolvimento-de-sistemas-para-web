@@ -24,5 +24,5 @@ Contato
 
 Para dúvidas ou sugestões:
 
-Carlos: carlosgf822754@gmail.com
+Carlos: gf822754@gmail.com
 Cauan: cauan5208@gmail.com
